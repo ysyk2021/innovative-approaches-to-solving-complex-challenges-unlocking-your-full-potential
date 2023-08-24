@@ -1,5 +1,3 @@
-Mind Mapping
-====================================================================================
 
 Innovative problem-solving requires breaking through barriers and finding new ways to approach challenges. One technique that can help with this is mind mapping. Mind mapping is a visual tool that enables individuals to generate, organize, and connect ideas in a non-linear way. In this chapter, we will explore how mind mapping can help break through barriers in innovative problem-solving.
 

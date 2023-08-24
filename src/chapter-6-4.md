@@ -1,5 +1,3 @@
-Building a Team Culture that Values Diversity
-================================================================================================
 
 Diversity can be a powerful tool for creative problem-solving. In this chapter, we will explore strategies for building a team culture that values diversity and leverages it for creative problem-solving.
 

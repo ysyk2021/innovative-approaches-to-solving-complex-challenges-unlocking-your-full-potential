@@ -1,5 +1,3 @@
-Healthcare and Wellness
-===========================================================================================
 
 Innovative problem-solving techniques can be applied to a variety of fields, including healthcare and wellness. In this chapter, we will explore the unique challenges facing healthcare and wellness, as well as strategies for applying innovative problem-solving techniques to these fields.
 

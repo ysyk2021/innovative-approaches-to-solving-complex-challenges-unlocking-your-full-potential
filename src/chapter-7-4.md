@@ -1,5 +1,3 @@
-Home and Family Life
-=========================================================================
 
 Innovation and creativity are not just for the workplace. They can also be applied to everyday life, including home and family life. By applying innovative problem-solving techniques and creative thinking to our daily routines and challenges, we can improve our lives and the lives of those around us. In this chapter, we will explore how innovation and creativity can be applied specifically to home and family life.
 

@@ -1,5 +1,3 @@
-Overview of Innovative Problem-Solving
-================================================================================================
 
 Innovative problem-solving involves taking a creative and unconventional approach to solving complex challenges. It requires thinking outside of the box, exploring new perspectives and ideas, and taking calculated risks. In this chapter, we will provide an overview of the elements of innovative problem-solving.
 

@@ -1,5 +1,3 @@
-Design Thinking
-=======================================================================================
 
 Innovative problem-solving requires breaking through barriers and finding new ways to approach challenges. One technique that can help with this is design thinking. Design thinking is a human-centered approach to problem-solving that emphasizes empathy, experimentation, and rapid iteration. In this chapter, we will explore how design thinking can help break through barriers in innovative problem-solving.
 

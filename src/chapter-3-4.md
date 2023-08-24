@@ -1,5 +1,3 @@
-Divergent and Convergent Thinking
-==================================================================================================================
 
 In this chapter, we will explore the fundamental techniques for breaking through barriers in innovative problem-solving. We will focus specifically on two essential thinking approaches: divergent and convergent thinking. These methods can help individuals and teams unlock their full potential when faced with complex challenges.
 

@@ -1,5 +1,3 @@
-Relationships and Communication
-====================================================================================
 
 Innovation and creativity can be applied to relationships and communication to foster deeper connections and more effective communication. In this chapter, we will explore how innovation and creativity can be applied to relationships and communication.
 

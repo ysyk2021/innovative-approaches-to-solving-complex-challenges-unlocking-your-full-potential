@@ -1,5 +1,3 @@
-Cultivating a Growth Mindset for Creative Thinking
-============================================================================================================
 
 Cultivating a growth mindset is essential for unlocking your full potential in innovative problem-solving. A growth mindset involves the belief that intelligence and abilities can be developed through hard work, dedication, and a willingness to learn from mistakes. In this chapter, we will explore strategies for cultivating a growth mindset for creative thinking.
 

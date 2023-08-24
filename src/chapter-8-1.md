@@ -1,5 +1,3 @@
-Fear of Failure or Rejection
-===============================================================================
 
 Fear of failure or rejection is a common barrier to innovative problem-solving. It can prevent individuals from taking risks, trying new approaches, and thinking creatively. In this chapter, we will explore strategies for overcoming fear of failure or rejection in innovative problem-solving.
 

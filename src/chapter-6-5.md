@@ -1,5 +1,3 @@
-Fostering an Inclusive Environment
-=====================================================================================
 
 Fostering an inclusive environment is essential for leveraging diversity for creative problem-solving. In this chapter, we will explore strategies for fostering an inclusive environment that values and leverages diversity.
 

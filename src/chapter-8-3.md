@@ -1,5 +1,3 @@
-Lack of Motivation or Interest
-=================================================================================
 
 Lack of motivation or interest can be a significant barrier to innovative problem-solving. Without motivation or interest, individuals may struggle to engage in the creative and unconventional thinking required for innovative problem-solving. In this chapter, we will explore strategies for overcoming lack of motivation or interest in innovative problem-solving.
 

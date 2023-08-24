@@ -1,5 +1,3 @@
-Encouraging Open Communication and Collaboration
-===================================================================================================
 
 Encouraging open communication and collaboration is essential for leveraging diversity for creative problem-solving. In this chapter, we will explore strategies for encouraging open communication and collaboration in diverse teams.
 

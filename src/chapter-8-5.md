@@ -1,5 +1,3 @@
-Addressing Mental Health Challenges Affecting Creativity and Innovation
-==========================================================================================================================
 
 Mental health challenges such as anxiety, depression, and burnout can impact creativity and innovation. In this chapter, we will explore strategies for addressing mental health challenges affecting creativity and innovation in innovative problem-solving.
 

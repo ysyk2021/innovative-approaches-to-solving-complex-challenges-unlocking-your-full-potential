@@ -1,5 +1,3 @@
-Identifying Resistance to Change
-================================================================================
 
 Resistance to change is a natural and common reaction that individuals and organizations may experience when faced with change. However, overcoming resistance to change is essential for achieving success in complex challenges. In this chapter, we will explore strategies for identifying resistance to change.
 

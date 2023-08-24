@@ -1,5 +1,3 @@
-Overcoming Barriers to Innovative Problem-Solving
-=================================================
 
 Innovative problem-solving requires creativity, curiosity, and resilience. However, there are several barriers that can prevent individuals from unlocking their full potential in problem-solving. In this chapter, we will explore strategies for overcoming common barriers to innovative problem-solving.
 

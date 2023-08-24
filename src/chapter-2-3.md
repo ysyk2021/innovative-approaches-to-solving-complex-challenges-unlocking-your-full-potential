@@ -1,5 +1,3 @@
-Developing Curiosity and a Willingness to Experiment
-==============================================================================================================
 
 Innovative problem-solving requires developing curiosity and a willingness to experiment. Curiosity fuels creativity and innovation, while a willingness to experiment allows individuals to try new approaches and take calculated risks. In this chapter, we will explore the importance of developing curiosity and a willingness to experiment in innovative problem-solving.
 

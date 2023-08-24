@@ -1,5 +1,3 @@
-Communicating Effectively with Stakeholders
-===========================================================================================
 
 Communicating effectively with stakeholders is an essential strategy for overcoming resistance to change. In this chapter, we will explore strategies for communicating effectively with stakeholders during times of change.
 

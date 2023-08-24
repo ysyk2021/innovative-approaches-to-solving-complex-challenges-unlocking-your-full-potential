@@ -1,5 +1,3 @@
-Lateral Thinking
-========================================================================================
 
 Innovative problem-solving requires breaking through barriers and finding new ways to approach challenges. One technique that can help with this is lateral thinking. Lateral thinking involves approaching problems from unconventional angles and generating creative solutions. In this chapter, we will explore how lateral thinking can help break through barriers in innovative problem-solving.
 

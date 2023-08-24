@@ -1,5 +1,3 @@
-Procrastination and Distractions
-===================================================================================
 
 Procrastination and distractions can be significant barriers to innovative problem-solving. They can prevent individuals from staying focused, completing tasks on time, and generating new ideas. In this chapter, we will explore strategies for overcoming procrastination and distractions in innovative problem-solving.
 

@@ -1,5 +1,3 @@
-Addressing Unconscious Bias
-==============================================================================
 
 Addressing unconscious bias is a critical component of leveraging diversity for creative problem-solving. In this chapter, we will explore strategies for addressing unconscious bias in diverse teams.
 

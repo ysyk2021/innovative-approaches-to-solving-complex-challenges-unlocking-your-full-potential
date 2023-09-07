@@ -47,3 +47,4 @@
   - [Addressing mental health challenges affecting creativity and innovation](chapter-8-5.md)
 - [Conclusion](conclusion.md)
 - [Contacts](contacts.md)
+- [Our Other Books](other-books.md)

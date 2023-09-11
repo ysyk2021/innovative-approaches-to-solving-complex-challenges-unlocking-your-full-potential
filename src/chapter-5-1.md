@@ -1,5 +1,4 @@
-Chapter: Identifying Resistance to Change
-=========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of identifying resistance to change in unlocking our full potential to solve complex challenges. We will delve into various aspects of understanding why people resist change, recognizing common signs of resistance, and developing strategies to address and overcome resistance. By effectively identifying and managing resistance to change, we can create an environment that fosters innovation, adaptability, and successful problem-solving.
 

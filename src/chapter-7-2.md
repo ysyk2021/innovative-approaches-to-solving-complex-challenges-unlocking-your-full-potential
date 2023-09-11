@@ -1,5 +1,4 @@
-Chapter: Relationships and Communication
-========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of relationships and communication in unlocking our full potential to solve complex challenges. We will delve into various aspects of fostering positive relationships, effective communication strategies, building trust, and collaborating with others. By cultivating strong relationships and honing our communication skills, we can harness the power of collective intelligence and innovation.
 

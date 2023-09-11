@@ -1,5 +1,4 @@
-Chapter: Creating a Culture of Innovation and Experimentation
-=============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of creating a culture of innovation and experimentation in unlocking our full potential to solve complex challenges. We will delve into various aspects of fostering creativity, promoting risk-taking, and nurturing an environment that supports innovation. By cultivating a culture that encourages innovative thinking and embraces experimentation, we can unleash our collective potential for solving complex challenges and driving meaningful change.
 

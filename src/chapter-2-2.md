@@ -1,5 +1,4 @@
-Chapter: Cultivating a Growth Mindset for Creative Thinking
-===========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the concept of a growth mindset and its role in cultivating creative thinking. We will delve into the characteristics of a growth mindset, its benefits, and practical strategies for developing and nurturing this mindset to unlock our full potential in solving complex challenges.
 

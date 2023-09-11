@@ -1,5 +1,4 @@
-Chapter: Learning from Failure and Setbacks
-===========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of learning from failure and setbacks in unlocking our full potential to solve complex challenges. We will delve into various aspects of embracing failure as a learning opportunity, reframing setbacks, and developing resilience. By adopting a growth mindset and extracting valuable lessons from failures, we can enhance our problem-solving abilities, foster innovation, and achieve greater success in overcoming challenges.
 

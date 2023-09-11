@@ -1,5 +1,4 @@
-Chapter: Overview of Innovative Problem-Solving
-===============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will provide an overview of innovative problem-solving and explore various approaches that can help unlock our full potential when faced with complex challenges. We will delve into the mindset, techniques, and strategies necessary for fostering innovation and finding creative solutions.
 

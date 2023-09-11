@@ -1,5 +1,4 @@
-Chapter: Mind Mapping
-=====================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the technique of mind mapping and its relevance in unlocking our full potential to solve complex challenges. We will delve into various aspects of mind mapping, including its benefits, principles, and practical applications. By harnessing the power of mind maps, we can enhance our creativity, improve problem-solving abilities, and organize complex information more effectively.
 

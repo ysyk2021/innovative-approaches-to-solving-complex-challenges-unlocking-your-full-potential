@@ -1,5 +1,4 @@
-Chapter: Addressing Unconscious Bias
-====================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the topic of unconscious bias and its impact on our ability to solve complex challenges. We will explore the nature of unconscious bias, its pervasive influence, and innovative approaches to address and overcome these biases.
 
